@@ -6,7 +6,7 @@
 - 🙌 &nbsp; Produtor de conteúdo trabalhando com Design, Social Media, Motion Design, Produção de Vídeo e UI/UX.
 - 🎓 &nbsp; Publicitário formado na Unicarioca no Rio de Janeiro.
 - 💼 &nbsp; Trabalhando como Produtor de Conteúdo no <a href="sesc.com.br">SESC BRASIL</a>
-- 👌 &nbsp; Estudando HTML/Wordpress na Escola BritÂnica de Artes Criativas.
+- 👌 &nbsp; Estudando HTML/Wordpress na Escola Britânica de Artes Criativas.
 
 
 <h3> :earth_americas: &nbsp;Onde me encontrar: </h3> 
